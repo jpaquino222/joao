@@ -8,3 +8,6 @@ Você pode entrar em contato comigo 📫
 00001111417751sp@al.educacao.sp.gov.br
 
 @joaopedrocosta5446
+
+
+![](https://media1.tenor.com/m/68df2Rud1AEAAAAd/horse.gif)
